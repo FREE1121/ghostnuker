@@ -1,2 +1,2 @@
 # ghostnuker
-https://mega.nz/folder/xAcGTBIT key x7IRh1VF_S9Q1vv-2--e4Q
+https://mega.nz/file/8YMziIjQ#mdMs6dR0w2VWxB_9RZ2c8tqhBNYCHzuNQEPZiyBMDvM
